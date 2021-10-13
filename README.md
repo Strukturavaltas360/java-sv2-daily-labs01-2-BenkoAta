@@ -1,0 +1,1 @@
+Konzultációkon kiadott gyakorlati feladataim
